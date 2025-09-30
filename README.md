@@ -7,3 +7,5 @@ https://fb.com/sayim0x
 https://fb.com/sayim0xdsffdsf
 https://www.instagram.com/sayim0xdsad/
 https://www.instagram.com/sayim0x
+https://www.tiktok.com/@apontam00
+https://www.tiktok.com/@sayim0x
