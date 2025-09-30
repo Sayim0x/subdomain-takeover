@@ -18,3 +18,6 @@ https://www.youtube.com/@yrf
 https://www.youtube.com/@sayim0x
 https://www.youtube.com/@sayim0xdfsdfsdf
 https://www.youtube.com/@sayim0xdf
+https://github.com/Sayim0x/
+https://github.com/remonsec
+https://github.com/Sayim0xdsadsad
