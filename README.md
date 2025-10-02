@@ -20,3 +20,4 @@ https://www.youtube.com/@sayim0xdfsdfsdf
 https://www.youtube.com/@sayim0xdfy
 https://github.com/remonsec
 https://github.com/Sayim0xdsadsad
+https://sayim0x.com
