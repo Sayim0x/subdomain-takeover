@@ -1,23 +1,2 @@
 # subdomain-takeover poc 
-https://twitter.com/sayim0xhaclededf
-https://x.com/sayim0xhacledsadasdf
-https://www.facebook.com/sayim0xsadd
-https://www.facebook.com/sayim0x
-https://fb.com/sayim0x
-https://fb.com/sayim0xdsffdsf
-https://www.instagram.com/sayim0xdsad/
-https://www.instagram.com/sayim0x
-https://www.tiktok.com/@apontam00
-https://www.tiktok.com/@sayim0x
-https://www.tiktok.com/@maruf.308
-https://www.tiktok.com/@md.rayhan0350
-https://www.tiktok.com/@user6001083958116
-https://www.tiktok.com/@sayim0xasdsadasddsad
-https://www.tiktok.com/@udsadlhsaijklhdnkjsahldjk
-https://www.youtube.com/@yrf
-https://www.youtube.com/@sayim0x
-https://www.youtube.com/@sayim0xdfsdfsdf
-https://www.youtube.com/@sayim0xdfy
-https://github.com/remonsec
-https://github.com/Sayim0xdsadsad
-https://sayim0x.com
+
